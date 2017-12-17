@@ -1,4 +1,7 @@
 #### Margarita Mendoza -- ***mem90405@gmail.com*** --- (562) 354-0687
+<https://www.linkedin.com/in/margarita-mendoza562>
+<https://mem90405.github.io>
+
 
 ### Summary
  ***
@@ -7,28 +10,31 @@
 ### Experience
  ***
 
- - 2008 - 2017 **LM & Associates, Fontana CA**
+ - 2008 - 2017 **LM & Associates, Certified Tax Preparer, Fontana CA**
 	      - Certified Tax Preparer
 	      - Office Manager
 	      - Payroll
 	      - Bookkeeping
- - 2002 - 2007 **Orange Empire, Fontana CA**
+ - 2002 - 2007 **Orange Empire, Partner, Fontana CA**
         - Import/Export Trading start-up
 	      - 7 Investors, 4 active partners
 	      - Purchasing Agent, prepared bids and sales.
         - Office Manager
- - 1990 - 2001 **Regional General Agent, American National Insurance**
+ - 1990 - 2001 **Regional General Agent, Securities Management and Research (SM&R), Los Angeles, CA**
 	      - Private Agency Office
-	      - Life Insurance Health and Disability License Certified
- - 1988 - 1990 **Assistant General Agent, Securities Management and Research (SM&R)**
+	      - Life Insurance Health and Disability License Certified sales
+        - Financial planning; retirement, college savings
+        - Series 63 securities products sales
+ - 1988 - 1990 **Assistant General Agent, American National Insurance, Los Angeles, CA**
+        - Life Insurance Health and Disability License Certified sales
         - Managed in house Insurance Agents
-        - Series 63 financial products sales
- - 1986 - 1988 **Insurance Agent, American National Insurance**
+        - Series 6 financial products sales
+ - 1986 - 1988 **Insurance Agent, American National Insurance, Los Angeles, CA**
         - Series 6 insurance products sales
 
 
 ### Education
- * **DeLa Sal University**, Manila
+ * **De La Salle University**, Manila
     * *Preeminent University in the Philippines*
  * Dual Major
     * ***BSc, Marketing***
